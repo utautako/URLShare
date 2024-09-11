@@ -1,5 +1,1 @@
-[# URLShare
-](https://cdn.discordapp.com/attachments/1213469934693257297/1281592939037851698/CameraPath.pdf?ex=66e2df6f&is=66e18def&hm=bb3ff449a47eceb376ed313793149f4590cf9e7d7b34f009e9d5cfa4744eb104&
 
-https://cdn.discordapp.com/attachments/1213469934693257297/1281592939490840597/241_-.pdf?ex=66e2df6f&is=66e18def&hm=47bf2437a1c88cd013200ecbf6f92c3704553518e53cec363afec75a63fa6502&
-)
